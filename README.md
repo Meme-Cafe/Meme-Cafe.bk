@@ -1,2 +1,2 @@
 # That-Kidd.github.io
-kek
+Invite Link:https://discord.gg/Z57xKDC
